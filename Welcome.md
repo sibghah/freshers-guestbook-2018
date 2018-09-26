@@ -12,6 +12,9 @@ Please enter your name in the list below to welcome yourself to ~~The Good Place
 - The Tooth Fairy
 - Patrick Wu
 - Chris Hammond
+- Val
+- Lib Kai
+- Kai Sean
 - Policane <3
 - Jieyou Xu (Joe)
 - Brandon
